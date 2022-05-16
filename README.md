@@ -1,0 +1,1 @@
+# Tugas_Alprog-Pertemuan_13-_Mega_Kartika_Somalinggi.ipynb
